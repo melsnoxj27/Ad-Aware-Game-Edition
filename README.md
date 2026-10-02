@@ -218,4 +218,4 @@ Ad-Aware Game Edition is offered as a **full free version** with all features in
 Download Ad-Aware Game Edition today and game worry-free with complete security at your fingertips!
 
 ---
-**Last updated:** 2026-10-02 13:30:03 UTC
+**Last updated:** 2026-10-02 18:55:26 UTC
